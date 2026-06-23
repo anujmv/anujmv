@@ -22,4 +22,4 @@ and agentic systems.
 
 ### Find me
 - LinkedIn: https://www.linkedin.com/in/anooj-mathew-varghese
-- Medium: https://medium.com/@anujmv
+- Medium: https://medium.com/@anoojmathewvarghese
